@@ -22,5 +22,5 @@ Life Purpose
 19. Burlock lives in me
 20. Forgive myself
 21. Save some depression inside myself so i can remember how important my friends are
-22. fredy's gift toke me 10 years but i love it
+22. fredy's gift toke me 10 years of healthy life, but i love it
 23. Sleep less
