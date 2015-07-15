@@ -11,7 +11,7 @@ Life Purpose
 8. Money will never be my among my purposes
 9. Barry White rocks!
 10. Make mistakes everyday and learn from them
-11. Persue excelence
+11. Pursue excelence
 12. Have fun sometimes
 13. Be different
 14. Be patient
